@@ -3,6 +3,8 @@ From Reitaisai 15 - Touhou Omikuji
 
 visit the website at: https://givemeyourloveminhanh.github.io/touhou-omikuji-vi/
 
+our facebook page: https://www.facebook.com/miyoi.tea.house
+
 [ VI | EN | ZH ]
 
 =================================
